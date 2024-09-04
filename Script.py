@@ -351,7 +351,7 @@ Mᴇꜱꜱᴀɢᴇ : <b>{}</b>"""
 ▰▰▰▰▰▰▰▰▰▰▰▰▰▰
 <a href='https://telegram.me/MrAK_LinkZz/5'>💁 𝗛𝗼𝘄 𝗧𝗼 𝗗𝗼𝘄𝗻𝗹𝗼𝗮𝗱</a>
 ▰▰▰▰▰▰▰▰▰▰▰▰▰▰
-<a href='https://telegram.me/+9DBeA0skBoFlOGM1'>🔆 𝐓𝐞𝐥𝐞𝐠𝐫𝐚𝐦 𝐆𝐫𝐨𝐮𝐩</a>
+<a href='https://telegram.me/+SKa11HVL-jU1MTNl'>🔆 𝐓𝐞𝐥𝐞𝐠𝐫𝐚𝐦 𝐆𝐫𝐨𝐮𝐩</a>
 
 <a href='https://whatsapp.com/channel/0029VaZbVwQGU3BJt3IfFr2Q'>❤️𝐖𝐡𝐚𝐭𝐬𝐀𝐩𝐩 𝐂𝐡𝐚𝐧𝐧𝐞𝐥</a>
 
